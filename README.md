@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jdgarcia-bot
-- 👀 I’m interested in cats and nothin else
+- 👀 I’m interested in cats and nothing else
 - 🌱 I’m currently learning html
 - 💞️ I’m looking to collaborate on anything that gives me money
 - 📫 How to reach me ... idk
